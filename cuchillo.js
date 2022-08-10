@@ -1,2 +1,2 @@
-Es para cortar pizzas 
-lo mejor seria que este afilado 
+Es para cortar pizzas con anana
+Que sea Tramontina
