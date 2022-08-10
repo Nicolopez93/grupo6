@@ -1,1 +1,2 @@
-Es para cortar pizzas
+Es para cortar pizzas 
+lo mejor seria que este afilado 
